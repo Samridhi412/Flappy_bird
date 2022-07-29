@@ -1,0 +1,2 @@
+## VIEW THE WORKING OF NEAT ALGORITHM(GENETIC IN NATURE)
+https://screenrec.com/share/fw5pDgSYoT
